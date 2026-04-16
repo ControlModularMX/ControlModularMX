@@ -74,7 +74,7 @@ Ubicados en **Acolman, Estado de México**, ofreciendo soporte técnico presenci
 
 🌐 **Sitio Web**: [controlmodularmx.com](https://controlmodularmx.com)
 
-📧 **Email**: contacto@controlmodularmx.com
+📧 **Email**: controlmodularmx@gmail.com
 
 ---
 
